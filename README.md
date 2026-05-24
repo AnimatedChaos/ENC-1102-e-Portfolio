@@ -1,2 +1,2 @@
 # ENC-1102-e-Portfolio
-a portfolio for my writing throughout my ENC-1102 class
+My name is Kevin Forrester and this is the e-Portfolio for my writing throughout my ENC-1102 class
