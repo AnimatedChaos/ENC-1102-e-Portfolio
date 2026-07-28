@@ -11,3 +11,5 @@ STUDENT LEARNING OUTCOMES
 6. We used rhetorical analysis on the famous "Rosie the Riveter" poster and compared it to a derivation of the famous poster of our choice. I compared the poster to a modern version promoting vaccination, criticizing its use of color, space, and texture.
 
 MAJOR WRITING ASSIGNMENTS
+1. Cultural Artifact Analysis
+   
