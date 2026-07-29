@@ -15,13 +15,13 @@ MAJOR WRITING ASSIGNMENTS
 
    The assignment asked for me to analyze a possession of mine from my childhood as an aspect of my identity, culture and language. I decided to analyze one of the first Warhammer models I got in middle school, I compared it to my chosen career path in college as well as my meager artistic talent and passion for science. Expanding on this thought process helped me learn how to practice self-reflection in my writing, to look at myself from a perspective as objective as possible.
    
-3. Research Project (read "Research Proposal final draft.odt", "Annotated Bibliography final draft.odt", and "Literature Review final draft.odt" respectively)
+2. Research Project (read "Research Proposal final draft.odt", "Annotated Bibliography final draft.odt", and "Literature Review final draft.odt" respectively)
 
    The three part research project asked me to come up with the fundamental question that my paper would base its research around, search through the internet for six primary sources to focus the paper on, and to combine everything together into the foundation upon which my paper would then be based. Taking each assignment one at a time I did what was asked of me and learned how to take the vague ideas in my head and turn them into a more concreate plan of attack for future assignments.
 
-4. Final Research Paper (read "Research Paper final draft.odt")
+3. Final Research Paper (read "Research Paper final draft.odt")
 
-   
+   The final research paper asked me to combine and expand upon all of the parts of the previous parts of the research project to create a basic research paper based on my research question. I started by modifying the introduction of my research proposal and then extended it for the intro, I then stated my methodology for research, inserted my previous findings for my sources, expanded on how my sources connect back to my question, and finally stated what this all means for the broader field and how to expand on my findings. This project reinforced the value of planning for me. I would not have been able to get this project done in a timely manner without the previous work and planning done for the research project.
 
-5. EPortfolio
+4. EPortfolio
    
