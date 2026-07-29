@@ -15,4 +15,7 @@ MAJOR WRITING ASSIGNMENTS
 
 2. Research Project (read "Research Proposal final draft.odt", "Annotated Bibliography final draft.odt", and "Literature Review final draft.odt" respectively)
 
-3. Final Research Paper (read "
+3. Final Research Paper (read "Research Paper final draft.odt")
+
+4. EPortfolio
+   
