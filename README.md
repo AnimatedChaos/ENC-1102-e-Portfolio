@@ -13,4 +13,6 @@ STUDENT LEARNING OUTCOMES
 MAJOR WRITING ASSIGNMENTS
 1. Cultural Artifact Analysis (read "Annotated Bibliography final draft.odt")
 
-2. Research Project (read "Research Proposal final draft.odt", "Annotated Bibliography final draft.odt", and "
+2. Research Project (read "Research Proposal final draft.odt", "Annotated Bibliography final draft.odt", and "Literature Review final draft.odt" respectively)
+
+3. Final Research Paper (read "
