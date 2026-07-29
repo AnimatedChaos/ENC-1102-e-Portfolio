@@ -13,9 +13,11 @@ STUDENT LEARNING OUTCOMES
 MAJOR WRITING ASSIGNMENTS
 1. Cultural Artifact Analysis (read "Annotated Bibliography final draft.odt")
 
-2. Research Project (read "Research Proposal final draft.odt", "Annotated Bibliography final draft.odt", and "Literature Review final draft.odt" respectively)
+   The assignment asked for me to analyze a possession of mine from my childhood as an aspect of my identity, culture and language.
+   I decided to analyze one of the first Warhammer models I got in middle school, I compared it to my chosen career path in college as well as my meager artistic talent and passion for science. Expanding on this thought process helped me learn how to practice self-reflection in my writing, to look at myself from a perspective as objective as possible.
+3. Research Project (read "Research Proposal final draft.odt", "Annotated Bibliography final draft.odt", and "Literature Review final draft.odt" respectively)
 
-3. Final Research Paper (read "Research Paper final draft.odt")
+4. Final Research Paper (read "Research Paper final draft.odt")
 
-4. EPortfolio
+5. EPortfolio
    
