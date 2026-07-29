@@ -28,8 +28,9 @@ MAJOR WRITING ASSIGNMENTS
    This EPortfolio assignment represents the totality of my work in the field of writing for this semester. This is where I have built essentially a record of all of my work for this class. My projects, assignments and constructive criticisms. I started by using the website GitHub to build the website project that exists today. I then built up the contents of the site one section at a time, starting with the first 4-5 parts of the Student Learning Outcomes section. I then proceeded with finishing the Student Learning Outcomes and continuing with the Major Writing Assignments. I then continued on to complete the EPortfolio with the Writing Artifacts section of the project. This portfolio has taught me patience in writing. I don't need to get every part of what I need to do done at once. I can take my time and do what I need piece by piece.
    
 WRITING ARTIFACTS
-   1.
-   2.
-   3.
-   4.
-   5.
+
+1.
+2.
+3.
+4.
+5.
