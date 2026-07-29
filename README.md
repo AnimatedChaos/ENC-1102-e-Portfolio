@@ -23,5 +23,7 @@ MAJOR WRITING ASSIGNMENTS
 
    The final research paper asked me to combine and expand upon all of the parts of the previous parts of the research project to create a basic research paper based on my research question. I started by modifying the introduction of my research proposal and then extended it for the intro, I then stated my methodology for research, inserted my previous findings for my sources, expanded on how my sources connect back to my question, and finally stated what this all means for the broader field and how to expand on my findings. This project reinforced the value of planning for me. I would not have been able to get this project done in a timely manner without the previous work and planning done for the research project.
 
-4. EPortfolio
+4. EPortfolio (click on comments button to see previous drafts)
+
+   
    
