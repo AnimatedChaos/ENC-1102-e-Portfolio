@@ -41,7 +41,7 @@ WRITING ARTIFACTS
 
 
 
-4. 
+4. Discussion Sources example part one.png and 
 
 
 
