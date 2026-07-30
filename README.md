@@ -29,8 +29,21 @@ MAJOR WRITING ASSIGNMENTS
    
 WRITING ARTIFACTS
 
-1.
-2.
-3.
-4.
-5.
+1. Reading Response number two.png
+
+
+
+2. 
+
+
+
+3. 
+
+
+
+4. 
+
+
+
+5. 
+
