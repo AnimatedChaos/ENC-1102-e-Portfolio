@@ -31,19 +31,20 @@ WRITING ARTIFACTS
 
 1. Reading Response number two.png
 
-
+   One of the earliest assignments for this class involved reading “From a Diary to an iPhone: The Extension of Journaling to Digital Forms” by Izabela Olejnik and detailing our perspective on the topic of modern technologies' effect on personal journaling. I chose this as an example because it represents an early point in my learning for this class. I tried my best to get the ideas from my head down onto the page and overall succeeded. Good communication is the foundation of all good writing, without it there is nothing else. However, the signs that this was an early assignment are still there. Points in the writing represent clear inexperience in writing one's perspective down.
 
 2. Cultural Artifact example.png
 
-
+   
 
 3. Discussion number three example.png
 
-
+   
 
 4. Discussion Sources example part one.png and Discussion Sources example part two.png
 
-
+   
 
 5. Literature Review Peer review example.png
 
+   
