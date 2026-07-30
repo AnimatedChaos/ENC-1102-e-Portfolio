@@ -37,7 +37,7 @@ WRITING ARTIFACTS
 
 
 
-3. 
+3. Discussion number three example.png
 
 
 
