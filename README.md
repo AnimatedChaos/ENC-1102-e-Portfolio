@@ -35,7 +35,7 @@ WRITING ARTIFACTS
 
 2. Cultural Artifact example.png
 
-   
+   This example represents the part of the first major assignment for this class, that being the Cultural Artifact Analysis, that I am most proud of. In it we see a paragraph, broken across two pages, that highlights how I had (and still have) two seemingly contradictory passions. One for the arts and another for the sciences. This paragraph utilizes contrast very effectively to show how, at the time, it seemed that these two very different hobbies could not blend. And yet it also uses language to hint at the fact that my chosen artifact would help me blend these seemingly contradictory elements of who I am into one perfect whole.
 
 3. Discussion number three example.png
 
