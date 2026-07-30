@@ -47,4 +47,4 @@ WRITING ARTIFACTS
 
 5. Literature Review Peer review example.png
 
-   
+   This final example comes from the second peer review section; wherein we were tasked with submitting a draft of our peer review, responding and constructively criticizing a chosen peer's draft, and ideally responding to at least one example of criticism and answering any unanswered questions they may have had concerning your work. Listed as an example is a peer's criticism of my draft and my response to it. This example highlights my ability to accept whatever fair criticism there is, explain the choices I made when writing the draft, and answering questions my peer had when reading my work.
