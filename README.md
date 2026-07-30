@@ -39,7 +39,7 @@ WRITING ARTIFACTS
 
 3. Discussion number three example.png
 
-   
+   This discussion post represents the beginning process of what would become my Final Research Paper. The assignment asked for me to list three potential research questions for both my research project and final paper. Here I have highlighted the one that would eventually become my actual research question. Here we see both the spark of a great question to be the foundation for a paper and the early flaws I had, and to some extent still have, in communicating that idea. I wrote down my question about our perception of the history of games in our culture. I now see the flaws in writing my question from that perspective and the difficulties that would have come from writing a paper from that particular angle.
 
 4. Discussion Sources example part one.png and Discussion Sources example part two.png
 
