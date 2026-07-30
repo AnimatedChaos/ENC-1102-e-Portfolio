@@ -33,7 +33,7 @@ WRITING ARTIFACTS
 
 
 
-2. 
+2. Cultural Artifact example.png
 
 
 
