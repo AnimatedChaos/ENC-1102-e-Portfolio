@@ -43,7 +43,7 @@ WRITING ARTIFACTS
 
 4. Discussion Sources example part one.png and Discussion Sources example part two.png
 
-   
+   This discussion post involved us talking about two of our six sources that we would use for our project and paper. One was to be an academic source, and the other was to be a non academic source. Discussion Sources example part one is one of the response's a peer of mine gave to this assignment that I found particularly fascinating. Discussion Sources example part two is my response to my peer that I gave in which I recommended further topics of inquiry that might help them with their thesis and how they might want to use it. This demonstrates good reading comprehension skills as well as the capacity for further analysis of another's work.
 
 5. Literature Review Peer review example.png
 
